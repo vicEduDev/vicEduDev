@@ -1,1 +1,1 @@
-![Accept]([https://www.google.com/url?sa=i&url=https%3A%2F%2Fimageresizer.com%2Fpt%2Fgerador-de-memes%2Feditar%2Fhuh-dog&psig=AOvVaw05VFvjFvr1ndykig7cY-Ty&ust=1749001011223000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCJj5o9KO1I0DFQAAAAAdAAAAABAc](https://content.imageresizer.com/images/memes/Huh-Dog-meme-2.jpg))
+![Texto Alternativo](https://content.imageresizer.com/images/memes/Huh-Dog-meme-2.jpg)
